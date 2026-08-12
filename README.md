@@ -46,4 +46,4 @@ If this policy changes in the future — for example, if a feature like backup s
 
 Contact
 
-If you have questions about this policy, contact: SundownDiary@gmail.com
+If you have questions about this policy, contact: SundownJournal@gmail.com
